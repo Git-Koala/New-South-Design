@@ -1,1 +1,1 @@
-# New-South-Design
+Alle Logos & Ressourcen die in diesem Repository aufgeführt werden unterliegen dem Urheberrecht und sind weder für kommerzielle noch private Nutzung außerhalb des Fivem Netzwerkes "New South" zugelassen. Zuwiederhandlungen werden mit einer Anzeige geahndet.
